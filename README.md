@@ -7,7 +7,7 @@
 PROGRESSBARS MADE BY ME FOR YOU AND ALL CUSTOM AND WORKING I ASK ONLY ONE THING DO NOT SPLIT IT FOR YOUR THANKS;) 
 
 
-PREVIEW: https://www.youtube.com/watch?v=-wrzheo-UaM  
+PREVIEW: https://cdn.discordapp.com/attachments/836294143885574214/971050005148344370/Immagine_2022-05-03_160020.jpg
 
 
 AUTHOR: Luigi.exe🐧#1984
